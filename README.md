@@ -1,0 +1,1 @@
+# Primetrade-Ai-intern-Assesment
